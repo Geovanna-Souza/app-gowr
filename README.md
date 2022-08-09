@@ -1,0 +1,1 @@
+O Kratos vai mata o Thor aquele frango.
